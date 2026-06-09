@@ -1,4 +1,4 @@
-# 
+# Principal DisplayFusion scripts para Mac OS | Gratuito DisplayFusion scripts para PC Windows. Con optimización de registro y monitoreo en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
